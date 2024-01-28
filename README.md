@@ -1,1 +1,1 @@
-https://ashishrautela123.github.io/sliderimages/
+https://ashishrautela123.github.io/basic_portfolio/
